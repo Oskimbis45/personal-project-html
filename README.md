@@ -1,2 +1,2 @@
 # personal-project-html
-This is my personal project
+This is osili kosisochukwu's personal project 
